@@ -1,0 +1,1 @@
+- Hi, I'm Lara Lima. I'm a software developer at 🦖 Softplan Brasil 🦄
